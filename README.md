@@ -1,4 +1,4 @@
-👋 Greetings, I’m @deepspace-pine
+🖖 Greetings, I’m @deepspace-pine
 
 👀 I’m interested in data, simplicity, art and games
 
